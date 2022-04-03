@@ -7,7 +7,7 @@ La consultoría SEO comienza aquí
 Sé lo que estás buscando... un consultor experto en SEO, ¿verdad? Pues estás en el lugar adecuado. Aumente su tráfico y sus clientes potenciales con una optimización de motores de búsqueda sin BSA.
 
 Resultados épicos de SEO
-Proporcionando resultados rentables de SEO utilizando estrategias probadas de SEO para algunas de las empresas más conocidas de Australia.
+Proporcionando resultados rentables de SEO utilizando estrategias probadas de SEO para algunas de las empresas más conocidas de España.
 
 Supera a tus competidores
 Genere más clientes potenciales a medida que se acerca a la primera página del ranking. Satisfactorio, ¿verdad? Descubra cómo hacerlo realidad.
